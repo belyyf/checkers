@@ -121,3 +121,6 @@ ________________________________________________________________________________
 ![image](https://github.com/user-attachments/assets/1a41dc79-a18f-4d6e-9b77-3605d5c7a9cb)
 ![image](https://github.com/user-attachments/assets/e90147d3-52e0-47f7-8e24-528430b963d6)
 
+_________________________________________________________________________________________________
+презентация: 
+https://docs.google.com/presentation/d/1ACVbVVqTx3wiAUXRRGdxjqHKH4hpwj4mxM7J5-6oWNM/edit?usp=sharing
